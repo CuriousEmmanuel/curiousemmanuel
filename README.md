@@ -1,4 +1,4 @@
-##  Curious too!?,,, let's collaborate then
+##  Curious too!?,,, let's collaborate then!
 
 
 [![](https://raw.githubusercontent.com/CuriousEmmanuel/curiousemmanuel/master/profile-summary-card-output/dark/0-profile-details.svg)](https://github.com/vn7n24fzkq/github-profile-summary-cards)
